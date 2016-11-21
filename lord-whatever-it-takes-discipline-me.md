@@ -1,11 +1,10 @@
 # Senhor, custe o que custar, me discipline
 
-Quando eu era criança, eu perguntei muitas coisas para o meu pai. Mas eu nunca pedi por disciplina.
-Infelizmente, "Quando eu era menino, falava como menino, sentia como menino, discorria como menino, mas, logo que cheguei a ser homem, acabei com as coisas de menino" (1 Coríntios 13:11). Isso significava que, em geral, que correções e disciplinas que ensinam deveriam ser evitadas.
+Quando eu era criança, eu perguntei muitas coisas para o meu pai. Mas eu nunca pedi por disciplina. Infelizmente, "Quando eu era menino, falava como menino, sentia como menino, discorria como menino, mas, logo que cheguei a ser homem, acabei com as coisas de menino" (1 Coríntios 13:11). Isso significava que, em geral, que correções e disciplinas que ensinam deveriam ser evitadas.
 
 Em minha juventude, eu gostava de uma casa em ordem, um jardim bem cuidado, comidas preparadas, roupas limpas e um ambiente amável, respeitoso e pacífico em minha casa. Mas eu não apreciei naturalmente as disciplinas requeridas para alcançar estas coisas. Muitas vezes procurava evitá-las. Eu também gostei da ideia de ir bem na escola, esportes e música, mas não gostei naturalmente dos muitos exercícios requeridos para desenvolver minhas habilidades. Eu os evitei muitas vezes.
 
-Se as minhas autoridades exteriores — meus pais, professores e treinadores — não tivessem sabiamente e amávelmente imposto sobre mim disciplinas desagradáveis e as vezes não desejadas, eu jamais teria entendido muitos benefícios que elas me trouxeram. E eu teria entendido muito mais benefícios se eu tivesse sido maduro e sábio o bastante para apreciar e acolher mais suas disciplinas e evitá-las menos. Eu não vi, ou não acreditei, o ganho a longo prazo de uma dor a curto prazo.
+Se as minhas autoridades exteriores — meus pais, professores e treinadores — não tivessem sabiamente e amavelmente imposto sobre mim disciplinas desagradáveis e as vezes não desejadas, eu jamais teria entendido muitos benefícios que elas me trouxeram. E eu teria entendido muito mais benefícios se eu tivesse sido maduro e sábio o bastante para apreciar e acolher mais suas disciplinas e evitá-las menos. Eu não vi, ou não acreditei, o ganho a longo prazo de uma dor a curto prazo.
 
 ## Maturidade acolhe disciplina
 
@@ -13,9 +12,9 @@ Mas "logo que cheguei a ser homem, acabei com as coisas de menino" de pensar sob
 
 Com mais ou menos vinte anos, eu me consciente de que eu estava desamparado para alcançar esse tipo de transformação que eu precisava no meu caráter e nas minhas próprias afeições. Até meus meus esforços de auto-disciplina, quando necessários, ainda não conseguiriam preencher o buraco entre o que a Escritura descreveu e a minha experiência. Então eu comecei a perguntar sinceramente a meu Pai celestial a me disciplinar, custe o que custar.
 
-Deus amávelmente respondeu com uma convergência de eventos que eu nunca poderia ter orquestrado ou até mesmo imaginado, resultando numa prolongada epóca de muita dificuldade e dolorosa luta espiritual. Não somente Deus trabalhou em mim várias áreas que eu precisava mudar, mas Ele também mostrou áreas que nem eu estava conciente. Mais marávilhoso do que tudo, Deus se encontrou comigo de forma tão pessoal e poderosa que Ele aprofundou e fortaleceu minha fé. Depois disso, eu claramente vi como os benefícios compensaram as lutas dolorosas.
+Deus amavelmente respondeu com uma convergência de eventos que eu nunca poderia ter orquestrado ou até mesmo imaginado, resultando numa prolongada época de muita dificuldade e dolorosa luta espiritual. Não somente Deus trabalhou em mim várias áreas que eu precisava mudar, mas Ele também mostrou áreas que nem eu estava consciente. Mais maravilhoso do que tudo, Deus se encontrou comigo de forma tão pessoal e poderosa que Ele aprofundou e fortaleceu minha fé. Depois disso, eu claramente vi como os benefícios compensaram as lutas dolorosas.
 
-Essa experiência tem me encojado em subsequentes anos de oração continua, e as vezses jejuar, pela disciplina do meu Pai quando eu precisava vencer lutas difíceis. E Ele tem respondido amávelmente e fielmente. Algumas de suas disciplinas tem sido bem mais severas do que sua primeira, e umas menos. Mas independentemente, eu nunca estive arrependido dessas orações, e nem parei de orar por isso. Pois através delas, Deus tem pressionado meu amor por ele por profundidades e alturas que, outra maneira, eu jamais conheceria.
+Essa experiência tem me encorajado em subsequentes anos de oração continua, e as vezes jejuar, pela disciplina do meu Pai quando eu precisava vencer lutas difíceis. E Ele tem respondido amavelmente e fielmente. Algumas de suas disciplinas tem sido bem mais severas do que sua primeira, e umas menos. Mas independentemente, eu nunca estive arrependido dessas orações, e nem parei de orar por isso. Pois através delas, Deus tem pressionado meu amor por ele por profundidades e alturas que, outra maneira, eu jamais conheceria.
 
 Eu aprendi que pedir a Deus que me discipline é a maneira de orar de um Cristão Hedonista; é pedir para Ele uma maior capacidade de aproveitá-lo.
 
@@ -39,10 +38,8 @@ Deus disciplina a quem Ele ama. Isso significa que existem dimensões do amor de
 
 É por isso que um Cristão Hedonista acolhe por meio da oração e até mesmo anseia a disciplina do Pai. É um sinal de maturidade espiritual, desejar o tesouro real mais do que prazeres passageiros. (Hebreus 11:25,26)
 
-Se nós desejamos evitar a disciplina do nosso Pai, e não pedimos a Ele por isso por medo de que Ele responda, nós estamos pensando e raciocinando como uma criança espiritual. Nos estamos, na verdade, dizendo "não obrigado" para a oferta de Deus de um bem impressionate, que fortalecerá nossa fé, enriquecerá nossa alma e aumentará nossa alegria — alegria indescritível de compartilhar da santidade de Deus e todos os benefícios que isso traz. Nos rejeitamos o ganho de ser fortalecido para comprender o amor de Deus que excede todo o entendimento, pois nos custa uma dor a curto prazo. (Efésios 3:18-19)
+Se nós desejamos evitar a disciplina do nosso Pai, e não pedimos a Ele por isso por medo de que Ele responda, nós estamos pensando e raciocinando como uma criança espiritual. Nos estamos, na verdade, dizendo "não obrigado" para a oferta de Deus de um bem impressionante, que fortalecerá nossa fé, enriquecerá nossa alma e aumentará nossa alegria — alegria indescritível de compartilhar da santidade de Deus e todos os benefícios que isso traz. Nos rejeitamos o ganho de ser fortalecido para compreender o amor de Deus que excede todo o entendimento, pois nos custa uma dor a curto prazo. (Efésios 3:18-19)
 
-Busquemos a maturidade espiritual. Não permitamos nossos objetivos carnais de curto prazo e desejos quebrados ditarem nosso progresso (Romanos 6:12). Não nos contentemos com alegrias rasas em Deus. "Então conheçamos, e prossigamos em conhecer ao Senhor" (Oséias 6:3) e "toma posse da vida eterna" (1 Timóteo 6:12) ao fazer disso nossa frequente oração.
-
-
+Busquemos a maturidade espiritual. Não permitamos nossos objetivos carnais de curto prazo e desejos quebrados ditarem nosso progresso (Romanos 6:12). Não nos contentemos com alegrias rasas em Deus. "Então conheçamos, e prossigamos em conhecer ao Senhor" (Oseias 6:3) e "toma posse da vida eterna" (1 Timóteo 6:12) ao fazer disso nossa frequente oração.
 
 *Original: [Lord, Whatever It Takes, Discipline Me] (http://www.desiringgod.org/articles/lord-whatever-it-takes-discipline-me)*
