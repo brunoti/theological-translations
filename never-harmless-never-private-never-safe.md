@@ -2,15 +2,15 @@
 
 ## Lutando contra a pornografia com um prazer superior
 
-Eu conheço a sedutora escravidão da pornografia em primeira mão. Eu lutei e perdi, com altos e baixos, durante o ensino médio e a faculdade. Eu cliquei no meu primeiro site pornográfico no sétimo ano quando um colega de classe me enviou um email e disfarçou o link para parecer algo para um projeto.
+Eu conheço a sedutora escravidão da pornografia em primeira mão. Eu lutei e perdi, com altos e baixos, durante o ensino médio e a faculdade. Eu cliquei no meu primeiro site pornográfico no sétimo ano do ensino médio quando um colega de classe me enviou um email e disfarçou o link para parecer algo para um projeto.
 
-Em diferentes épocas durante os próximos 10 anos batalhando contra o pecado, experimentando pequenas vitórias e, as vezes, grandes derrotas, eu tive o pensamento de que o casamento iria me curar. Em minha cabeça, eu pensava que eu só precisava de uma esposas para satisfazer todos os meus desejos sexuais e minha impaciência. Então eu me permitia em relacionamento após relacionamento, sabendo que eu não tinha lidado com a impureza que me atormentava.
+Em diferentes épocas nos próximos 10 anos batalhando contra o pecado, experimentando pequenas vitórias e, as vezes, grandes derrotas, eu tive o pensamento de que o casamento iria me curar. Em minha cabeça, eu pensava que eu só precisava de uma esposa para satisfazer todos os meus desejos sexuais e acabar com a minha impaciência. Então eu me permitia ir em relacionamento após relacionamento, sabendo que eu não tinha lidado com a impureza que me atormentava.
 
 A realidade era que nenhum relacionamento poderia ter resolvido meu pecado sexual — nenhum relacionamento, isto é, exceto por conhecer a Cristo. Eu estava olhando para namoros e para a esperança de que uma futura esposa iria preencher um desejo que somente Deus poderia. Eu estava focando em autodisciplina, namoro e casamento, quando Deus estava tentando me ensinar sobre alegria e me mostrar onde achar prazer real.
 
 ## O Cochilo que nunca acaba
 
-Pornografia parece devorar o mesmo tanto (ou mais) de metros quadrados de chão espiritual do que qualquer outra ameaça a jovens Cristãos hoje em dia. Nós precisamos levar essa erva daninha mais a sério onde quer que suas folhas espinhosas comecem a brotar. Por mais inofensivo ou privado que isso pareça, não é.
+Pornografia parece devorar o mesmo tanto (ou mais) metros quadrados de chão espiritual do que qualquer outra ameaça à jovens Cristãos hoje em dia. Nós precisamos levar essa erva daninha mais a sério, onde quer que suas folhas espinhosas comecem a brotar. Por mais inofensivo ou privado que isso pareça, não é.
 
 - Pornografia nos cega para Deus (Mateus 5:8). Ela embaça nossos olhos para a Sua bondade, verdade e beleza.
 
@@ -18,7 +18,7 @@ Pornografia parece devorar o mesmo tanto (ou mais) de metros quadrados de chão 
 
 - Pornografia alimenta a escravidão sexual — pessoas reais, mantidas contra a sua vontade, estupradas repetitivamente — por todo o mundo, até mesmo no seu país, na sua cidade ou em uma cidade maior perto de você.
 
-- Pornografia menospreza beleza real — como o temor a Deus (Provérbios 31:30) — e substitui essa beleza por uma imitação barata e decadente.
+- Pornografia menospreza a beleza real — como o temor a Deus (Provérbios 31:30) — e substitui essa beleza por uma imitação barata e decadente.
 
 - Pornografia faz do sexo algo pequeno e momentâneo, como um cigarro, em vez de algo concreto para a vida toda, como é em um casamento.
 
@@ -34,7 +34,7 @@ Pornografia parece devorar o mesmo tanto (ou mais) de metros quadrados de chão 
 
 Pornografia não é simplesmente um pecado vergonhoso. Se continuarmos nos satisfazendo com pornografia, ela vai tomar tudo de nós. Pornografia pode nos custar Cristo e tudo que Ele morreu para nos dar — perdão, liberdade, vida, esperança, paz e alegria. Pornografia silenciosamente sequestra milhões e os guia para uma agonia consciente e sem fim, distante de Deus e da glória de estar junto a Ele. Ela escraviza homens e mulheres, gerando fome em suas vidas, dia após dia, sem nunca dar a eles uma refeição completa até estarem perdidos e com fome para sempre.
 
-Pornografia nos coloca para dormir. Mas não é um sono; é morte. Ela parece como um curto e confortável cochilo, mas nós nunca acordamos. E a pornografia é forçada a nós em nossa sociedade, saindo de cara poro de nossa media e tecnologia. A erva daninha tem implacavelmente se espalhado para todo os lados, mesmo onde ela não é querida, e ela vai nos matar se nós permitirmos.
+Pornografia nos coloca para dormir. Mas não é um sono; é morte. Ela parece como um curto e confortável cochilo, mas nós nunca acordamos. A pornografia é forçada a nós em nossa sociedade, saindo de cada poro de nossa mídia e tecnologia. A erva daninha tem implacavelmente se espalhado para todo os lados, mesmo onde ela não é querida, e ela vai nos matar se nós permitirmos.
 
 ## Nove maneiras de acordar
 
@@ -56,7 +56,7 @@ Um dos momentos de luz para mim em minha jornada para vitória contra pornografi
 
 - Pornografia tem se escondido em incontáveis cabos da grande internet, espalhando perversidade em várias esquinas do nosso mundo. Quando nós recusamos o seu convite, nós diminuímos o seu alcance e influencia, mesmo que só um pouco. E nós damos a nós mesmos a oportunidade de sermos agentes da bondade, de usar a mídia como um canal para coisas totalmente diferentes. Nós podemos preencher a internet com links para a real verdade e beleza, para artigos, vídeos e muito mais que declare nossa gratidão ao nosso Deus e seu amor por nós.
 
-- Ninguém aplaude fidelidade a Deus quando ela não lhe custa absolutamente nada. Mesmo que pareça que todo mundo na sua idade está mergulhando de cabeça em águas rasas de luxúria, atividade sexual e pornografia — se vangloriando disso — nós podemos viver (e esperar) dramaticamente diferente. Não há nada de estranho ou radical sobre cair ou se entregar ao mundo, assistindo a filmes sexualmente explícitos que todos estão vendo ou lendo os romances sexualmente explícitos que todos seus colegas de classe parecem amar. O que se destacará é nossa feliz decisão de resistir a todo mal em fidelidade a nosso Deus e Amigo no céu.
+- Ninguém aplaude fidelidade a Deus quando ela não lhe custa absolutamente nada. Mesmo que pareça que todo mundo na sua idade está mergulhando de cabeça em águas rasas de luxúria, atividade sexual e pornografia — e se vangloriando disso — nós podemos viver (e esperar) dramaticamente diferente. Não há nada de estranho ou radical sobre cair ou se entregar ao mundo, assistindo a filmes sexualmente explícitos que todos estão vendo ou lendo os romances sexualmente explícitos que todos seus colegas de classe parecem amar. O que se destacará é nossa feliz decisão de resistir a todo mal em fidelidade a nosso Deus e Amigo no céu.
 
 - A educação sexual da pornografia encoraja manipulação a força e até brutalidade. Simplesmente não é sexo de verdade. Sexo de verdade — o sexo em que duas pessoas podem aproveitar em suas vidas sem enjoar ou ofender a Deus — é paciente, altruísta e gentil.
 
@@ -70,6 +70,4 @@ Todo o tempo que nos expomos e nos entretemos de maneira impura estamos sacrific
 
 Jesus diz, "O reino dos céus é semelhante a um tesouro escondido no campo, que um homem, ao descobri-lo, esconde; então, movido de gozo, vai, vende tudo quanto tem, e compra aquele campo." (Mateus 13:44). Quando nós recusamos clicar e então vamos atrás de prazer em Jesus, nós estamos vendendo o que o mundo tem a oferecer e comprando um tesouro sem preço, cheio de verdade, beleza e real alegria.
 
-
 **Original: [Never Harmless, Never Private, Never Safe](http://www.desiringgod.org/articles/never-harmless-never-private-never-safe)**
-
