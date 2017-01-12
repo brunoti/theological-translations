@@ -1,5 +1,7 @@
 {
   "dependencies": {
-    "nightmare": "^2.7.0"
+    "cli-spinners": "^1.0.0",
+    "nightmare": "^2.7.0",
+    "ora": "^0.3.0"
   }
 }

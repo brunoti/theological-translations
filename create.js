@@ -1,9 +1,10 @@
-console.log('\n\n');
-
+const ora = require('ora');
+const bouncingBall = require('cli-spinners').bouncingBall;
 const links = process.argv.slice(2)
 const fs = require('fs');
 const Nightmare = require('nightmare');
 
+const spinner = ora({ text: 'Baixando textos...', spinner: bouncingBall }).start();
 
 const getTitle = link => {
   const nightmare = Nightmare();
@@ -60,5 +61,8 @@ const promises = links.map(link => {
 });
 
 Promise.all(promises)
-  .then(_ => console.log('\n\nTHE END!!\n\n'))
+  .then(_ => {
+    spinner.text = 'The end!';
+    spinner.stop();
+  })
 
